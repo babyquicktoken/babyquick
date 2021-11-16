@@ -52,7 +52,7 @@ Septemper 2021
 
 November 2021
 
--   babyquick game launch on steam!
+-   babyquick game launch on Steam!
 
 ## NFT Collection
 
